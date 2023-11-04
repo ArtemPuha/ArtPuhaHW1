@@ -1,1 +1,0 @@
-# ArtPuhaHW1
